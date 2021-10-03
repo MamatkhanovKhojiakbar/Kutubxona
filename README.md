@@ -1,2 +1,2 @@
 # Kutubxona
-Kutubxonaga Tez orada start 
+Kutubxonaga Tez orada start beramiz
